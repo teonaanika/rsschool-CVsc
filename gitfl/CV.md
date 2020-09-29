@@ -21,4 +21,4 @@
   
 
 - **summary**:
-   I do want to learn programing, think in this field man never be boring.
+   I do want to learn programing, think in this field man never be boring and with this knowledge can many interesting thing to do and to do and do and do.
